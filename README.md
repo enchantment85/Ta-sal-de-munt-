@@ -1,2 +1,2 @@
 # Ta-sal-de-munt-
-so mia cosa go da scrif... ma me ga proe istès...
+El prìm repository in Crèmasc... perché me so mia buna à lesìl e gnà à scrif... ma me ga proè ìstés!
